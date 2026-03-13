@@ -1,2 +1,0 @@
-# Publicidad
-Para nayah
